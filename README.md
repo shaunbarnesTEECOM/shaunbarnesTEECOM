@@ -22,4 +22,5 @@ My approach ensures technology solutions are not just smart—but also aligned w
 
 Want to learn more about my work or TEECOM’s projects in the EMEA region? I’d be happy to help!
 
+[teecom.com](https://www.teecom.com/)
 
